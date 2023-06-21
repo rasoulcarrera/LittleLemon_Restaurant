@@ -1,1 +1,1 @@
-# LittleLemon_Resturant
+# LittleLemon_Restaurant
